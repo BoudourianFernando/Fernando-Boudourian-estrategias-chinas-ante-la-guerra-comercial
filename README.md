@@ -1,1 +1,2 @@
 # Fernando-Boudourian-estrategias-chinas-ante-la-guerra-comercial
+ Frente a las restricciones comerciales impuestas por Estados Unidos, China ha respondido con una estrategia multifacética. Ha potenciado su inversión en sectores clave como la inteligencia artificial y la manufactura avanzada. Además, ha expandido su presencia en mercados emergentes, reduciendo su dependencia de un solo socio comercial. Estas medidas buscan consolidar su posición en el comercio global.
